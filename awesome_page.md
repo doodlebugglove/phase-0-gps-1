@@ -16,5 +16,5 @@
 * The Force Awakens
 * Rogue One: A Star Wars Story
 
-    Netflix & Slow Motion for Me
+    Netflix & Chill to it
 [links](http://www.starwars.com/films)
